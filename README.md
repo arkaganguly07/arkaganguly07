@@ -9,9 +9,6 @@
 
 
 ### Connect with me:
-- https://www.instagram.com/arkaganguly7/ [Instagram]
-- https://www.facebook.com/arkaganguly07/ [Facebook]
-- https://twitter.com/arka_ganguly7       [Twitter]
-- https://www.youtube.com/channel/UCnui7emVNWq1Q-AAkFW6gVA  [YouTube]
+- 
 
 
